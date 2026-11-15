@@ -1,1 +1,1 @@
-# GRC206_Security-Awareness_-Trainig_Programs_2025-GCR-12720
+# GRC206_Security-Awareness_-Training_Programs_2025-GCR-12720
